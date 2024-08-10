@@ -1,4 +1,4 @@
-👀 I’m interested in Web development.<br>
+👀 I’m always interested in learning new technology.<br>
 🌱 I’m currently learning Data Structures and Algorithms (DSA).<br>
 💞️ I want to collaborate on web development projects, open-source contributions, and innovative tech solutions.<br>
 📫 How to reach me: akshatabidwe06@gmail.com | www.linkedin.com/in/akshata-bidwe-a8a4ba1b6<br>
